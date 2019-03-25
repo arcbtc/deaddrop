@@ -12,3 +12,6 @@ Selling Welsh Cakes in England without paying import tax? Subvert the authoritie
 ## Notes
 
 Obv don't use this for illegal activity 
+
+[![LN Slave Mod](https://i.imgur.com/ET6wO42.png)](https://www.youtube.com/watch?v=HykbBntf-Q4)
+
